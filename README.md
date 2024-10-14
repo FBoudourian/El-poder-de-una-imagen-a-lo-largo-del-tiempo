@@ -1,1 +1,2 @@
 # El-poder-de-una-imagen-a-lo-largo-del-tiempo
+La fotografía no es solo una técnica, es un arte que ha evolucionado con el tiempo. Desde los primeros días con cámaras analógicas hasta las digitales actuales, cada imagen captura mucho más que un momento. Cada encuadre es una historia no contada, un testigo de emociones y experiencias. A lo largo de los años, nuestra relación con las fotografías ha cambiado, pero el impacto que tienen sigue siendo profundo.
